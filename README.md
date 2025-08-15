@@ -25,3 +25,5 @@ Braeden Justinraj
 Samarth_Pande
 
 Yash K
+
+Syed Asad Abbas Rizvi
