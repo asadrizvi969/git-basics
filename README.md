@@ -26,4 +26,4 @@ Samarth_Pande
 
 Yash K
 
-Syed Asad Abbas Rizv
+Syed Asad Abbas Rizvi
